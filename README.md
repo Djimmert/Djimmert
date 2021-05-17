@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Djimmert
+- 👀 I’m interested in Language technology
+- 🌱 I’m currently learning Information science and Journalism
+- 📫 How to reach me: d.casander@outlook.com
